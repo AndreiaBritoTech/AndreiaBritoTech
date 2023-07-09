@@ -1,7 +1,7 @@
 ### Olá me chamo Andreia ~ Sejam Bem-Vindas 👋
 
 - 🤯 Primeira vez com Tecnologia
-- 😊 Sempre pornta a aprender
+- 😊 Sempre pronta a aprender
 - 🧐 Focada nos objetivos
 
 
